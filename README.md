@@ -4,7 +4,7 @@ What Is a Supply Chain?
 A supply chain is a network between a company and its suppliers to produce and distribute a specific product to the final buyer. This network includes different activities, people, entities, information, and resources. The supply chain also represents the steps it takes to get the product or service from its original state to the customer. 
 
 
-Supply chains are developed by companies so they can reduce their costs and remain competitive in the business landscape.
+Supply chains are developed by companies so they can reduce their costs and remain competitive in the business landscape...
 
 
 Supply chain management is a crucial process because an optimized supply chain results in lower costs and a faster production cycle.
