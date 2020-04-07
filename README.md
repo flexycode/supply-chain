@@ -35,4 +35,4 @@ As globalization continues, supply chain efficiencies become more optimized, whi
 
 SPONSORED
 Start with $30 trading bonus
-Trade forex and CFDs on stock indices, commodities, stocks, metals and energies with a licensed and regulated broker. For all clients who open their first real account, XM offers a $30 trading bonus to test the XM products and services without any initial deposit needed. Learn more about how you can trade over 1000 instruments on the XM MT4 and MT5 platforms from your PC and Mac, or from a variety of mobile devices..
+Trade forex and CFDs on stock indices, commodities, stocks, metals and energies with a licensed and regulated broker. For all clients who open their first real account, XM offers a $30 trading bonus to test the XM products and services without any initial deposit needed. Learn more about how you can trade over 1000 instruments on the XM MT4 and MT5 platforms from your PC and Mac, or from a variety of mobile devices.
