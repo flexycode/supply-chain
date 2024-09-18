@@ -36,3 +36,26 @@ As globalization continues, supply chain efficiencies become more optimized, whi
 SPONSORED
 Start with $30 trading bonus
 Trade forex and CFDs on stock indices, commodities, stocks, metals and energies with a licensed and regulated broker. For all clients who open their first real account, XM offers a $30 trading bonus to test the XM products and services without any initial deposit needed. Learn more about how you can trade over 1000 instruments on the XM MT4 and MT5 platforms from your PC and Mac, or from a variety of mobile devices..
+
+<!-- End point line insert Thanks for visiting enjoy your day, feel free to modify this  -->
+---
+<p align="center">
+<img src="https://readme-typing-svg.demolab.com/?lines=Thanks+For+Visiting+Enjoy+Your+Day+~!;" alt="mystreak"/>
+</p>
+
+<!-- Genshin Impact -->
+<div align="center">
+<img src="https://media.giphy.com/media/qr4CNpxIL6wwNUYZsL/giphy.gif?cid=ecf05e47iqq0k4rx0kv1fb3w4hl8dja3ouiqzx4vz1665i6b&ep=v1_stickers_search&rid=giphy.gif&ct=s" width="300">
+</div>
+
+<!-- End point line insert Comeback again next time, feel free to modify this  -->
+<p align="center">
+<img src="https://readme-typing-svg.demolab.com/?lines=💎💎Come+Back+Again+next+time💎💎" alt="mystreak"/>
+</p>
+
+</p>
+    
+<br>
+<!-- End point insert background effect line of sight color red -->
+<img src="https://user-images.githubusercontent.com/74038190/212284100-561aa473-3905-4a80-b561-0d28506553ee.gif" width="1000">
+
